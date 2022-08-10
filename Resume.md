@@ -6,3 +6,6 @@ I mowed the lawn last week and put away the dishes- My house
 Education
 Clown School 
  
+Skills
+I can make balloon animals
+Animals I can make - Snakesand worms

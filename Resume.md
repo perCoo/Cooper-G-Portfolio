@@ -8,4 +8,4 @@ Clown School
  
 Skills
 I can make balloon animals
-Animals I can make - Snakesand worms
+Animals I can make - Snakes and worms

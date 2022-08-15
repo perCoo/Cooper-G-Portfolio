@@ -1,12 +1,11 @@
 # Cooper's Resume
 
-## Work Experience - Birthday Clown
+## Education - Mcintosh High School
 
-### Education - Clown School 
+### Work Experience - Money from birthday presents and christmas gifts 
  
-### Skills - I can make balloon animals. 
+### Skills - I can make balloon animals.  
 Animals I can make: 
 - Snakes
 - Worms
-- EELs
-- 
+- EELS 

@@ -11,3 +11,10 @@
 - Snakes
 - Worms
 - Eels
+
+## Typing Skill
+- keys learned j,u,i,k,f,r,e,d. space
+- wpm: 26
+- i am very good at typing
+- i typed thgat very faat
+- hitr me please
